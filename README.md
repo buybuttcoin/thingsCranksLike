@@ -19,6 +19,7 @@ Things Stupid Cranks Like, and how they connect
 * Anti-vax
 * Covid vax == decrepyt womb/"wait 5-10 years"
 * An inability to understand the definitions/distinctions of communism and socialism
+* Literally not understanding basic dietary concepts like "calories in, calories out"
 * 9/11 inside job
 * Moon landing fake
 * Lizard People
