@@ -15,6 +15,7 @@ Things Stupid Cranks Like, and how they connect
 * Floridated water as mind control/turning frogs...jolly
 * No studies on hand-rolled cigs killing you just as much
 * Seed oil
+* Processed food and sugar causing specific and prolonged behavioral changes
 * Bitcoin "we're early"
 * Anti-vax
 * Covid vax == decrepyt womb/"wait 5-10 years"
@@ -24,5 +25,6 @@ Things Stupid Cranks Like, and how they connect
 * Moon landing fake
 * Lizard People
 * Flat Earth
+
 
 
