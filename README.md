@@ -5,7 +5,7 @@ Things Stupid Cranks Like, and how they connect
 
 * Alex Jones/Infowars
 * Jones' crank network (Posobeic, Pieczenick, Paul Joseph Watson, etc)
-* RFK Jr and his website about masks being nuremberg trials/experimental treatment
+* RFK Jr and his website about masks being nuremberg trials/experimental treatment (https://childrenshealthdefense.org/)
 * ZeroHedge
 * The radical right manosphere (Cucker, Walsh, Crowder, Shapiro)
 * QAnon
